@@ -3,6 +3,8 @@
 Some articles by the flipradio anchor --- **Li HouChen**
 
 ----
+### 歪脑 WHYNOT
+[2024-06-28 蜜雪冰城、Temu、Shein的“廉价中国”时代——巨兽的养成和制度的反噬 | 歪脑 WHYNOT](WHYNOT/20240628_蜜雪冰城TemuShein的廉价中国时代巨兽的养成和制度的反噬歪脑WHYNOT.md)
 
 ### 青年志 Youthology
 
