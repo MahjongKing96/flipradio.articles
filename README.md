@@ -4,6 +4,8 @@ Some articles by the flipradio anchor --- **Li HouChen**
 
 ----
 ### 歪脑 WHYNOT
+[2024-04-25 《三体》的宇宙社会学想象：应和中国现实的犬儒病毒 | 歪脑 WHYNOT](WHYNOT/20240425_三体的宇宙社会学想象应和中国现实的犬儒病毒歪脑WHYNOT.md)
+
 [2024-06-28 蜜雪冰城、Temu、Shein的“廉价中国”时代——巨兽的养成和制度的反噬 | 歪脑 WHYNOT](WHYNOT/20240628_蜜雪冰城TemuShein的廉价中国时代巨兽的养成和制度的反噬歪脑WHYNOT.md)
 
 [2024-07-15 第三次世界大战成为网络叙事 中国人已经准备好甚至渴求战争了吗？ | 歪脑 WHYNOT](WHYNOT/20240715_第三次世界大战成为网络叙事中国人已经准备好甚至渴求战争了吗歪脑WHYNOT.md)
