@@ -200,6 +200,9 @@ Some articles by the flipradio anchor --- **Li HouChen**
 
 [douban/凝视奥斯威辛后写诗的野蛮.md](douban/凝视奥斯威辛后写诗的野蛮.md)
 
+### 其他
+[2015-11-16 后微信时代的社会关系：李厚辰Multiverse演讲视频](Others/20151116_后微信时代的社会关系李厚辰Multiverse演讲视频.md)
+
 
 
 
