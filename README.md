@@ -120,6 +120,7 @@ Some articles by the flipradio anchor --- **Li HouChen**
 
 [2024-09-20 偷拍女性事件为何频频上演？.md](vistopia/20240920_偷拍女性事件为何频频上演.md)
 
+[2024-11-12 哈里斯输掉大选，是“精英的傲慢”吗？](vistopia/20241112_哈里斯输掉大选是精英的傲慢吗.md)
 ----
 
 ### **Studywith**
