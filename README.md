@@ -138,6 +138,8 @@ Some articles by the flipradio anchor --- **Li HouChen**
 
 [2024-11-12 哈里斯输掉大选，是“精英的傲慢”吗？](vistopia/20241112_哈里斯输掉大选是精英的傲慢吗.md)
 
+[2024-11-18 这本豆瓣热门新书，告诉我们一个骇人的未来](vistopia/20241118_这本豆瓣热门新书告诉我们一个骇人的未来.md)
+
 ----
 
 ### **Studywith**
