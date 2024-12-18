@@ -146,6 +146,8 @@ Some articles by the flipradio anchor --- **Li HouChen**
 
 [2024-11-18 这本豆瓣热门新书，告诉我们一个骇人的未来](vistopia/20241118_这本豆瓣热门新书告诉我们一个骇人的未来.md)
 
+[2024-12-17 医保巨头CEO被枪杀，美国怎么了？](vistopia/20241217_医保巨头CEO被枪杀美国怎么了.md)
+
 ----
 
 ### **Studywith**
